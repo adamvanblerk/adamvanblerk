@@ -8,9 +8,13 @@ ________________________________________________________________________________
 B. Education
 
 University of the Western Cape
+
 BSc in Computer Science (Completed 2025)
+
 Honours in Computer Science (Current)
+
 Edgemead High School
+
 National Senior Certificate (Matriculated in 2022)
 _____________________________________________________________________________________________________________________________________________________________________________________________________________________
 
